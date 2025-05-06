@@ -9,4 +9,4 @@ _Fitur Lumayan Ada 527_.
 _Dan Lainya_
 
 *_Silahkan Pm JIKALAU Minat_*
-_owner_ : https://wa.me/623877636168?text=Order_Script_Xlesy-VIP
+_owner_ : https://wa.me/6281275363201?text=Order_Script_Xlesy-VIP
